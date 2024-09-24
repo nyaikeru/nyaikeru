@@ -1,7 +1,7 @@
 # hihi I'm Nyaikeru or Maik!!
 >- learning Java for Minecraft mods, and one day my name will be **known**!
 >- I make my own assets n stuff along with a friend
->- I'm a guy
+>- I'm a boy!
 >- Follow me @Nyaikerusama on most socials!!
 ```
     ____      /| __   _
